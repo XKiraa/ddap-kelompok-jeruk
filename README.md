@@ -1,6 +1,6 @@
 ## Kelompok Jeruk
 
-Nama Anggota Kelompok Apel :
+Nama Anggota Kelompok Jeruk :
 
 1.  **[Auriel Edo P]()** - 205150709111011
 2.  **[Awlylie Nabriz I S]()** - 205150709111001
